@@ -1,0 +1,1 @@
+# Syntecxhub_E-commerce_Product_Details_Page
